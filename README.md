@@ -1,5 +1,8 @@
-Me chamo Livia Zanoni🦋
+## Bem vindo ao meu perfil! :👋
+Me chamo **Livia Zanoni🦋**
+
 - Tenho 16 anos
 - Estou no 2º ano do ensino médio
-- Email de contato: liviazanoni225@gmail.com
+ - ### Meu contato :📬
+- liviazanoni225@gmail.com
 
